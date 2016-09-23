@@ -2,9 +2,9 @@
 
 拆书家：鲁锋  日期：2016年09月24日
 
-学习主题：精力管理
+学习主题：成为沟通达人，学会表达感谢
 
-学习目标：学会「事前准备」，战胜负面行为，搞定你的目标。
+学习目标：学会正确的表达感谢
 
 拆解书籍：非暴力沟通 [美]马歇尔·卢森堡
 
@@ -44,10 +44,6 @@
 在企业做培训时，常有经理人和我说，称赞和表扬他人很管用。他们强调：“研究表明，如果经理称赞员工，员工就会努力工作。在学校中，也存在同样的情况，如果老师表扬学生，学生就会认真学习。”虽然我也看过这类的研究报告，但我相信，称赞只会在一开始起作用。一旦他们意识到这些**称赞背后的目的是为了操纵他们，却会导致反效果。**然而，我最担心的是，发现这些称赞的潜在目的之后，人们对于由衷的感激也会心存疑虑。
 
 **用非暴力沟通的方式表达感谢时，我们只是为了庆祝他人的行为提升了我们生活品质，而不是想得到任何回报。**
-
-such statements are typically uttered as expressions of appreciation in life-alienating communication. perhaps you are surprised that i regard praise and compliments to be life-alienating. notice, however, that appreciation expressed in this form reveals little of what's going on in the speaker; it establish the speaker as someone who sits in judgment. i define judgments-both positive and negative- as life-alienating communication. 
-
-our sole intention is to celebrate the way our lives have been enriched by others。
 
 ## 【I】拆书家讲解引导
 
